@@ -1,4 +1,4 @@
-# FINAL RESULT: deepseek get > 609/1020marks< 59.7% ，GOOD！！！！ /deepseek pro-max!
+# FINAL RESULT: deepseek get > 609/1020marks< 59.7% ，GOOD！！！！ /deepseek pro-max!几乎没有查询任何外部资料。Hardly any external information was consulted.
 
 ---
 ---
